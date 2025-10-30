@@ -1,4 +1,4 @@
-- 📫 How to reach me :kyuuyxx@outlook.com
+- 📫 How to reach me :kyuuyxx@outlook.com OR kyuuyxx@gmail.com
 
 
 <!---
